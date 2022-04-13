@@ -6,7 +6,7 @@ Treachery Beach **[Map](https://goo.gl/maps/HsEWTFSZGp21MQQeA)**
 [Brewing The Coastal Brewing Company 1100-1730 Monday - Saturday, 1100-1600 Sunday](http://thecoastalbrewingcompany.com) **[Map](https://goo.gl/maps/9r5vSHyJHDwSJz6q6)**  
 [Great Lakes Paddocks 1100-1600 Thursday - Monday](http://www.greatlakespaddocks.com.au) **[Map](https://goo.gl/maps/g3P8cqYSoG2LH3MU6)**  
 
-###16/4 (Saturday) -17/4(Sunday) -2 hours drive - Port Macquarie
+### 16/04 (Saturday) - 17/04(Sunday) -2 hours drive - Port Macquarie
 
 [Laurieton Riverwalk Market Sunday 17](https://portmacquarieinfo.com.au/whats-on/events/laurieton-riverwalk-market) **[Map](https://goo.gl/maps/5kwNXACqJYKhb5X9A)**  
 [Koala Hospital 0830-1600 Everyday - Free](https://www.koalahospital.org.au) **[Map](https://g.page/KoalaHospitalPtMacquarie?share)**  
@@ -19,9 +19,7 @@ Coffs Harbour -
 Muttonbird Island Nature Reserve **[Map](https://goo.gl/maps/o8yyfxCn73iShr26A)**  
 Forest Sky Pier 8-5pm **[Map](https://goo.gl/maps/dffF4BjwPGJyswBbA)**  
 
-### BYRON BAY
-
-19/04 (Tuesday) - 21/04 (Thursday)
+### BYRON BAY 19/04 (Tuesday) - 21/04 (Thursday)
 [Harvest Newrybar Bakery/Deli - 0630-1500 Everyday] (https://harvest.com.au/) **[Map] (https://g.page/harvestnewrybar?share)**  
 Dalwood Falls **[Map] (https://goo.gl/maps/3sv5MwApcy7Lp4AE7)**  
 [Lismore Organic Market - 0730-1100 Tuesday 19/04 Only] (https://byronbay.com/events/new-brighton-farmers-market) **[Map](https://goo.gl/maps/PfdJqQ45kvhSHeC98)**  
@@ -53,8 +51,8 @@ Lighthouse
 ### 24/4 (Sunday)
 Newbys Lookout
 Strickland State Forest
+Arrive Home Around Midday
 
-
-Arrive home midday
-
-### 25/4 (Monday) - Wake up at 5 am for Dawn Service. Go to the pub watch 2up 
+### 25/4 (Monday)
+Wake up at 5 am for Dawn Service.
+Go to the pub and watch 2up.
