@@ -7,7 +7,7 @@ Treachery Beach **[Map](https://goo.gl/maps/HsEWTFSZGp21MQQeA)**
 
 ---
 
-### 16/04 (Saturday) - 17/04 (Sunday) -2 hr drive - Port Macquarie - stay overnight 
+### 16/04 (Saturday) - 17/04 (Sunday) - 2 hr drive - Port Macquarie - stay overnight 
 [Laurieton Riverwalk Market Sunday 17](https://portmacquarieinfo.com.au/whats-on/events/laurieton-riverwalk-market) **[Map](https://goo.gl/maps/5kwNXACqJYKhb5X9A)**  
 [Koala Hospital 0830-1600 Everyday - Free](https://www.koalahospital.org.au) **[Map](https://g.page/KoalaHospitalPtMacquarie?share)**  
 [Bago Maze and Winery](https://www.bago.com.au/) & [Baba Lila Chocolate Shop](https://www.babalila.com.au/) 9am - 5pm Everyday **[Map](https://goo.gl/maps/DbKKkULxNRqdLLyc8)**
