@@ -1,8 +1,1 @@
 [Byron Bay](byron.html)
-
-<ul class="ck ck-todolist">
-  <li class="ck-todolist__item">
-    <span class="ck-todolist__item-checkbox"></span>
-    <span class="ck-todolist__item-content">Create a strong device passcode</span>
-  </li>
-</ul>
