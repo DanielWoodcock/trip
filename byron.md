@@ -1,4 +1,4 @@
-### 15/4 (Friday) Leave 0600 - Seal Rocks - 3 hr Drive - Stay Overnight
+### 15/4 (Friday) SEAL ROCKS - Leave 0600 - 3 hr Drive - Stay Overnight
 Treachery Beach **[Map](https://goo.gl/maps/HsEWTFSZGp21MQQeA)**  
 [Treachery Headland walking track - 2km - 1hr](https://www.nationalparks.nsw.gov.au/things-to-do/walking-tracks/treachery-headland-walking-track) **[Map](https://goo.gl/maps/MsnHcHtD6Eon8WWT8)**  
 [Sugarloaf Point Lighthouse](https://www.nationalparks.nsw.gov.au/things-to-do/historic-buildings-places/sugarloaf-point-lighthouse) **[Map](https://goo.gl/maps/T5FXdrU44ytMDjcQ7)**  
@@ -7,7 +7,7 @@ Treachery Beach **[Map](https://goo.gl/maps/HsEWTFSZGp21MQQeA)**
 
 ---
 
-### 16/04 (Saturday) - 17/04 (Sunday) - 2 hr drive - Port Macquarie - stay overnight 
+### 16/04 (Saturday) PORT MACQUARIE - 17/04 (Sunday) - 2 hr drive - stay overnight 
 [Laurieton Riverwalk Market Sunday 17](https://portmacquarieinfo.com.au/whats-on/events/laurieton-riverwalk-market) **[Map](https://goo.gl/maps/5kwNXACqJYKhb5X9A)**  
 [Koala Hospital 0830-1600 Everyday - Free](https://www.koalahospital.org.au) **[Map](https://g.page/KoalaHospitalPtMacquarie?share)**  
 [Bago Maze and Winery](https://www.bago.com.au/) & [Baba Lila Chocolate Shop](https://www.babalila.com.au/) 9am - 5pm Everyday **[Map](https://goo.gl/maps/DbKKkULxNRqdLLyc8)**
@@ -15,13 +15,13 @@ Lake Cathie Beach **[Map](https://goo.gl/maps/ecqpjaWBpUL4GZjU7)** & Rainbow Bea
  
 ---
  
-### 18/4 (Monday) - Coffs Harbour - 2 hr drive then 2.5 hrs to Byron Bay
+### 18/4 (Monday) - COFFS HARBOUR - 2 hr drive then 2.5 hrs to Byron Bay
 Muttonbird Island Nature Reserve **[Map](https://goo.gl/maps/o8yyfxCn73iShr26A)**  
 Forest Sky Pier 8-5pm **[Map](https://goo.gl/maps/dffF4BjwPGJyswBbA)**  
 
 ---
 
-### BYRON BAY 19/04 (Tuesday) - 21/04 (Thursday)
+###  19/04 (Tuesday) BYRON BAY
 [Harvest Newrybar Bakery/Deli - 0630-1500 Everyday](https://harvest.com.au/) **[Map](https://g.page/harvestnewrybar?share)**  
 Dalwood Falls **[Map](https://goo.gl/maps/3sv5MwApcy7Lp4AE7)**  
 [Lismore Organic Market - 0730-1100 Tuesday 19/04 Only](https://byronbay.com/events/new-brighton-farmers-market) **[Map](https://goo.gl/maps/PfdJqQ45kvhSHeC98)**  
@@ -32,13 +32,13 @@ Surf Lesson
 
 ---
 
-### 20/4 (Wednesday) - 
+### 20/4 (Wednesday) BYRON BAY - 
 
 
 
 ---
 
-### 21/4 (Thursday)
+### 21/4 (Thursday) BYRON BAY
 [Kayak with the dolphins 0830 3 Hours $69pp](https://www.capebyronkayaks.com/) **[Map](https://goo.gl/maps/vrr2cVo38QbBFcsT7)**  
 [Byron Farmers Market 0700-1100 Thursday Only](https://byronbay.com/events/the-byron-farmers-market/) **[Map](https://goo.gl/maps/HSCWvw9MPuFa5o6Z7)**  
 
