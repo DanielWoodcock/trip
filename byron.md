@@ -24,7 +24,7 @@ Forest Sky Pier 8-5pm **[Map](https://goo.gl/maps/dffF4BjwPGJyswBbA)**
 ---
 
 ### Day 5 - 19/04 (Tuesday) BYRON BAY - 2.5 hrs drive
-[Harvest Newrybar Bakery/Deli - 0630-1500 Everyday](https://harvest.com.au/) **[Map](https://g.page/harvestnewrybar?share)**  
+[Harvest Newrybar Bakery/Deli - 0630-1500 Everyday](https://harvest.com.au/) **[Map](https://maps.app.goo.gl/G3rn3YStHmrjx23G6)**  
 Dalwood Falls **[Map](https://goo.gl/maps/3sv5MwApcy7Lp4AE7)**  
 [Lismore Organic Market - 0730-1100 Tuesday 19/04 Only](https://byronbay.com/events/new-brighton-farmers-market) **[Map](https://goo.gl/maps/PfdJqQ45kvhSHeC98)**  
 [New Brighton Market 8:00-11:00 19th Only](https://newbrightonfarmersmarket.org.au/) **[Map](https://goo.gl/maps/6FKopVz2papj3xEG6)**  
