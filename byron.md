@@ -1,6 +1,7 @@
+
 ### Day 1 - 15/4 (Friday) SEAL ROCKS - Leave 0600 - 3 hr drive - Stay Overnight
-[Treachery Headland walking track - 2km - 1hr](https://www.nationalparks.nsw.gov.au/things-to-do/walking-tracks/treachery-headland-walking-track) **[Map](https://goo.gl/maps/MsnHcHtD6Eon8WWT8)**  
-[Sugarloaf Point Lighthouse](https://www.nationalparks.nsw.gov.au/things-to-do/historic-buildings-places/sugarloaf-point-lighthouse) **[Map](https://goo.gl/maps/T5FXdrU44ytMDjcQ7)**  
+- [X] [Treachery Headland walking track - 2km - 1hr](https://www.nationalparks.nsw.gov.au/things-to-do/walking-tracks/treachery-headland-walking-track) **[Map](https://goo.gl/maps/MsnHcHtD6Eon8WWT8)**  
+- [X] [Sugarloaf Point Lighthouse](https://www.nationalparks.nsw.gov.au/things-to-do/historic-buildings-places/sugarloaf-point-lighthouse) **[Map](https://goo.gl/maps/T5FXdrU44ytMDjcQ7)**  
  
 ---
 
@@ -68,4 +69,3 @@ Arrive [Home](https://goo.gl/maps/FQZKwi7ShBhtX9YJ6) Around Midday
 ### Day 11 - 25/4 (Monday)
 [Wake up at 5 am for Dawn Service](https://goo.gl/maps/bSj67fGxv1Rk1wtw9)  
 Go to the pub and watch 2up.
-
