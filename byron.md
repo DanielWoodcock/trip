@@ -24,14 +24,12 @@
 ---
 
 ### Day 5, 6, 7 - 19/04 (Tuesday) - 21/04 BYRON BAY - 1.5 hrs drive
+- [ ] Sunset Drum Circle  
 - [ ] Harvest Newrybar Bakery/Deli - 0630-1500 Everyday](https://harvest.com.au) **[Map](https://maps.app.goo.gl/G3rn3YStHmrjx23G6)**. 
 - [ ] Dalwood Falls **[Map](https://goo.gl/maps/3sv5MwApcy7Lp4AE7)**  
-- [ ] [Lismore Organic Market - 0730-1100 Tuesday 19/04 Only](https://byronbay.com/events/new-brighton-farmers-market) **[Map](https://goo.gl/maps/PfdJqQ45kvhSHeC98)**  
-- [ ] [New Brighton Market 8:00-11:00 19th Only](https://newbrightonfarmersmarket.org.au/) **[Map](https://goo.gl/maps/6FKopVz2papj3xEG6)**  
-- [ ] Sunrise at Cape Byron walking track - 2.5 hrs **[Map](https://goo.gl/maps/PArSxhkurRVigxkG7)**  
-- [ ] Surf Lesson  
+- [ ] Sunrise / Sunset at Cape Byron walking track - 2.5 hrs **[Map](https://goo.gl/maps/PArSxhkurRVigxkG7)**  
+- [ ] [Surf Lesson Thursday 21 0830](https://koolkatzsurf.com)  
 - [ ] [Stone & Wood Brewery 1100-1700](https://stoneandwood.com.au/byron-brewery) **[Map](https://maps.app.goo.gl/Hz4dNrNuP6PMkVa29)**  
-- [ ] [Kayak with the dolphins 0830 3 Hours $69pp](https://www.capebyronkayaks.com) **[Map](https://goo.gl/maps/vrr2cVo38QbBFcsT7)**  
 - [ ] [Byron Farmers Market 0700-1100 Thursday Only](https://byronbay.com/events/the-byron-farmers-market) **[Map](https://maps.app.goo.gl/XvWtdWtRuqF8noaY9)**  
 
 ---
