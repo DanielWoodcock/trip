@@ -24,34 +24,29 @@
 ---
 
 ### Day 5, 6, 7 - 19/04 (Tuesday) - 21/04 BYRON BAY - 1.5 hrs drive
-- [ ] Sunset Drum Circle  
 - [ ] Harvest Newrybar Bakery/Deli - 0630-1500 Everyday](https://harvest.com.au) **[Map](https://maps.app.goo.gl/G3rn3YStHmrjx23G6)**. 
-- [ ] Dalwood Falls **[Map](https://goo.gl/maps/3sv5MwApcy7Lp4AE7)**  
 - [ ] Sunrise / Sunset at Cape Byron walking track - 2.5 hrs **[Map](https://goo.gl/maps/PArSxhkurRVigxkG7)**  
-- [ ] [Surf Lesson Thursday 21 0830](https://koolkatzsurf.com)  
-- [ ] [Stone & Wood Brewery 1100-1700](https://stoneandwood.com.au/byron-brewery) **[Map](https://maps.app.goo.gl/Hz4dNrNuP6PMkVa29)**  
-- [ ] [Byron Farmers Market 0700-1100 Thursday Only](https://byronbay.com/events/the-byron-farmers-market) **[Map](https://maps.app.goo.gl/XvWtdWtRuqF8noaY9)**  
+- [X] [Surf Lesson Thursday 21 0830](https://koolkatzsurf.com)  
+- [X] [Stone & Wood Brewery 1100-1700](https://stoneandwood.com.au/byron-brewery) **[Map](https://maps.app.goo.gl/Hz4dNrNuP6PMkVa29)**   
 
 ---
  
 ### Day 8 - 22/4 (Fri) - 2 hr 15 drive to COFFS HARBOUR / 1 hr 10 mins drive to SOUTH WEST ROCKS
 - [ ] Muttonbird Island Nature Reserve **[Map](https://goo.gl/maps/o8yyfxCn73iShr26A)**  
-- [ ] Forest Sky Pier 8-5pm **[Map](https://goo.gl/maps/dffF4BjwPGJyswBbA)**  
-- [ ] [Dolphin Marine Conservation Park 1000-1400 Adult $40 student $35](https://dolphinmarineconservation.com.au/tickets/daily-tickets) **[Map](https://goo.gl/maps/QYhPD6ga94WJT6V37)**  
 - [ ] [Trial Bay Gaol - $11 - 0900 - 1630 daily](https://www.nationalparks.nsw.gov.au/things-to-do/historic-buildings-places/trial-bay-gaol) **[Map](https://goo.gl/maps/QJf1EUM2MjStPk1y7)**  
  
 ---
 
 ### Day 9 - 23/4(Sat) - ANNA BAY - Drive 
+- [ ] [Bago Maze and Winery](https://www.bago.com.au) & [Baba Lila Chocolate Shop](https://www.babalila.com.au) 9am - 5pm Everyday **[Map](https://goo.gl/maps/DbKKkULxNRqdLLyc8)**  
+- [ ] [Great Lakes Paddocks 1100-1600 Thursday - Monday](http://www.greatlakespaddocks.com.au) **[Map](https://goo.gl/maps/g3P8cqYSoG2LH3MU6)**  
+- [ ] [Strickland State Forest](https://www.forestrycorporation.com.au/visit/forests/strickland) [PDF Map](https://www.forestrycorporation.com.au/__data/assets/pdf_file/0004/440176/strickland-sf-map.pdf) **[Map](https://goo.gl/maps/Pd6Gyi2SUZdLgHZ59)**  
+
 - [ ] Anna Bay **[Map](https://maps.app.goo.gl/bpUkH95VyxKCgotz5)**  
 
 ---
 
 ### Day 10 - 24/4 (Sunday)
-- [ ] [Bago Maze and Winery](https://www.bago.com.au) & [Baba Lila Chocolate Shop](https://www.babalila.com.au) 9am - 5pm Everyday **[Map](https://goo.gl/maps/DbKKkULxNRqdLLyc8)**  
-- [ ] [Newbys Lookout (4WD required in wet weather)](https://www.nationalparks.nsw.gov.au/things-to-do/lookouts/newbys-lookout) **[Map](https://goo.gl/maps/JDGUCsjqJfzZXeJx5)**  
-- [ ] [Great Lakes Paddocks 1100-1600 Thursday - Monday](http://www.greatlakespaddocks.com.au) **[Map](https://goo.gl/maps/g3P8cqYSoG2LH3MU6)**  
-- [ ] [Strickland State Forest](https://www.forestrycorporation.com.au/visit/forests/strickland) [PDF Map](https://www.forestrycorporation.com.au/__data/assets/pdf_file/0004/440176/strickland-sf-map.pdf) **[Map](https://goo.gl/maps/Pd6Gyi2SUZdLgHZ59)**  
 - [ ] Arrive [Home](https://goo.gl/maps/FQZKwi7ShBhtX9YJ6) Around Midday
 
 ---
@@ -59,4 +54,3 @@
 ### Day 11 - 25/4 (Monday)
 - [ ] [Wake up at 5 am for Dawn Service](https://goo.gl/maps/bSj67fGxv1Rk1wtw9)  
 - [ ] Go to the pub and watch 2up.
-
